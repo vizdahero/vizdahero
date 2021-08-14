@@ -2,3 +2,4 @@
 - 👀 interested in App Developing
 - 🛠  currently working on BTC DATA app
 - 📫 you can contact me on twitter @vizdahero
+- 💚 support me via zbd.gg/vizdahero
